@@ -4,8 +4,8 @@ My name is Hưng, i'm from Vietnam and i'm 14 years old (yes i'm still studying 
 My birthday is September 17th (very long from now right?)
 
 Also, here are social medias i usually use:
-[Facebook]https://facebook.com/ruanyouxing07
-[Twitter]https://twitter.com/ruanyouxing
+[Facebook](https://facebook.com/ruanyouxing07)
+[Twitter](https://twitter.com/ruanyouxing)
 
 That's all, i'm simple af :)
 <!--
