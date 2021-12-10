@@ -1,5 +1,13 @@
-### Hi there 👋
+###  Hello,
 
+My name is Hưng, i'm from Vietnam and i'm 14 years old (yes i'm still studying in my local secondary school).
+My birthday is September 17th (very long from now right?)
+
+Also, here are social medias i usually use:
+[Facebook]https://facebook.com/ruanyouxing07
+[Twitter]https://twitter.com/ruanyouxing
+
+That's all, i'm simple af :)
 <!--
 **ruanyouxing/ruanyouxing** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
